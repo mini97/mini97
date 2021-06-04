@@ -1,7 +1,7 @@
 💃 ℍ𝕚, 𝕀’𝕞 @𝕞𝕚𝕟𝕚𝟡𝟟
 
   
-   I’m interested in designing and appreciating of art
+   I’m interested in designing and appreciating of art . I like listening to music 𝄠
    
  I’m currently learning full stack ! I'm the very beginner ✌
   
