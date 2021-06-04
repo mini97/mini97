@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @mini97
+- 💃 Hi, I’m @mini97
 - 👀 I’m interested in designing and appreciating of art
 - 🌱 I’m currently learning full stack ! I'm the very beginner ✌
-- 🖤 I’m looking to collaborate on anyone, everyone possible to grow up with me
+- ߮💖߮I’m looking to collaborate on anyone, everyone possible to grow up with me
 - 📫 How to reach me is just comment on my repository
 
 <!---
